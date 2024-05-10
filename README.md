@@ -13,4 +13,6 @@ Militante, Dariel M.
 
 Victoriano, Nicole S. 
 
+Check the Issues for the user manual and screenshots of the results.
+
 (For educational purposes; requirement for school.)
